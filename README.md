@@ -1,1 +1,1 @@
-#Mind Map
+%Mind Map
